@@ -1,4 +1,11 @@
-### Hi there 👋
+### Āyubōvan!
+
+                                            M I L I N D I  K O D I K A R A ✨
+                      software engineer | future leader | explorer | sri lankan | buzzing bee
+
+
+
+
 
 <!--
 **Milindi-Kodikara/Milindi-Kodikara** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
