@@ -1,7 +1,7 @@
 ### Āyubōvan!
 
                                             M I L I N D I  K O D I K A R A ✨
-                      software engineer | future leader | explorer | sri lankan | buzzing bee
+                      product engineer | future leader | explorer | sri lankan | buzzing bee
 
 
 
