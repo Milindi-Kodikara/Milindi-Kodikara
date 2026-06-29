@@ -1,4 +1,4 @@
-### Āyubōvan!
+### Āyubōwan!
 
                                             M I L I N D I  K O D I K A R A ✨
                       product engineer | future leader | explorer | sri lankan | buzzing bee
